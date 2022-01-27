@@ -1,2 +1,2 @@
-# 20002
+# 2002
 forritunarkeppni 2002
